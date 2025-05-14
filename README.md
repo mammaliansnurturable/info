@@ -3,4 +3,4 @@
 
 interests include jjba, pokemon, mp100, severance, succession, paleontology, furries, cannabis and more
 
-i do not tolerate incest/rape/pedophile fetishists. hide me/mute me/block me
+no "proship" bs please 👍 
