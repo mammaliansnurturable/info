@@ -3,4 +3,4 @@
 
 interests include jjba, pokemon, mp100, severance, succession, paleontology, uma musume, furries, mlp, cannabis and more
 
-no "proship" bs please 👍 
+no "proship" bs please just block me 👍 
